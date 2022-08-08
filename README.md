@@ -1,2 +1,3 @@
-# liga-de-heroes
-Liga de heroes 
+# Liga de heroes
+
+Este es el repositorio de los heroes de la liga de justicia
