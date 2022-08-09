@@ -1,0 +1,1 @@
+Alexander "Lex" Luthor (/ˈluːθɔːr, -θər/) is a supervillain appearing in American comic books published by DC Comics. The character was created by Jerry Siegel and Joe Shuster. Lex Luthor originally appeared in Action Comics #23 (cover dated: April 1940). He has since endured as the archnemesis of Superman
