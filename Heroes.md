@@ -4,3 +4,5 @@
 2. Batman
 3. Linterna Verde
 4. Mujer Maravilla  
+5. Aquaman
+6. Flash
